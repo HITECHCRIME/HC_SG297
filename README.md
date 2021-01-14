@@ -34,7 +34,7 @@ MOTHNODE
 
 thought i'm gonna die
 paying little price
-it's a slice through rough patch of my life
+it's a slice through the rough patch of my life
 
 wanna make it right
 ain't applying any doubt
