@@ -38,12 +38,17 @@ it's a slice through rough patch of my life
 
 wanna make it right
 ain't applying any doubt
-just really wanted to play time
+really wanted to play time away
+from the noise
+
 what i truly cornered was aligned
+
 not denying any 
 flaws i might have
+
 thoughts i present
 are the mirror of my mind
+i reflect into present
 
 ```
 
