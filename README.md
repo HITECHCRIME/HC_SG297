@@ -38,11 +38,12 @@ it's a slice through rough patch of my life
 
 wanna make it right
 ain't applying any doubt
-just really wanted to play nice
-what i truly cornered was 
+just really wanted to play time
+what i truly cornered was aligned
 not denying any 
 flaws i might have
 thoughts i present
+are the mirror of my mind
 
 ```
 
