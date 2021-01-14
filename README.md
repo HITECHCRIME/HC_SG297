@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# YXUNG BVPHOMXT x MOTHNODE_ Title
 
 **Listen now:** 
 
@@ -22,7 +22,22 @@ Description.
 ## Lyrics
 
 ```
+YXUNG BVPHOMXT
 
+x
+x
+x
+x
+x
+
+MOTHNODE
+
+thought i'm gonna die
+paying little price
+it's a slice through rough patch of my life
+
+wanna make it right
+i ain't applying any doubt
 
 ```
 
