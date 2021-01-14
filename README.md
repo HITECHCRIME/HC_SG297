@@ -37,7 +37,7 @@ paying little price
 it's a slice through rough patch of my life
 
 wanna make it right
-i ain't applying any doubt
+ain't applying any doubt
 
 ```
 
