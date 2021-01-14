@@ -38,6 +38,7 @@ it's a slice through rough patch of my life
 
 wanna make it right
 ain't applying any doubt
+just wanted to play nice
 
 ```
 
