@@ -38,7 +38,11 @@ it's a slice through rough patch of my life
 
 wanna make it right
 ain't applying any doubt
-just wanted to play nice
+just really wanted to play nice
+what i truly cornered was 
+not denying any 
+flaws i might have
+thoughts i present
 
 ```
 
